@@ -1,1 +1,1 @@
-https://swapnpachare.000webhostapp.com
+https://swapnilpachare2.github.io/moviesinfo
